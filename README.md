@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @beast-brain-11
 - 👀 I’m interested in Designing and coding
 - 🌱 I’m currently learning web-designing
-- 💞️ I’m looking to collaborate on charity and NFTs related Projects 
+- 💞️ I’m looking to collaborate on charity Projects 
 - 📫 How to reach me
 mail: priaanshgupta@gmail.com
 
